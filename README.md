@@ -1,1 +1,0 @@
-# jeparktech.github.io
